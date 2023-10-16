@@ -1,0 +1,1 @@
+使用说明：http://jiermt.w1.luyouxia.net/archives/novnc
